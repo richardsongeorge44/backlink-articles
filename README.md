@@ -4,6 +4,7 @@
 
 <!-- backlink-building:github-repository:start -->
 ### ahzfsw.com
+- [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Iron Tablets and Insomnia: Why the Gut Is the Real Problem](ahzfsw.com/iron-tablets-and-insomnia-why-the-gut-is-the-real-problem.md)
 - [Meringue Powder Shelf Life: Why Moisture Matters More Than the Date Stamp](ahzfsw.com/meringue-powder-shelf-life-why-moisture-matters-more-than-the-date-stamp.md)
 <!-- backlink-building:github-repository:end -->
