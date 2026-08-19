@@ -5,6 +5,7 @@
 <!-- backlink-building:github-repository:start -->
 ### ahzfsw.com
 - [Agar Agar Powder Room-Temperature Set: Why It Beats Gelatin in Heat](ahzfsw.com/agar-agar-powder-room-temperature-set-why-it-beats-gelatin-in-heat.md)
+- [Baking Powder Makes Chicken Crispy Only If the Skin Is Dry](ahzfsw.com/baking-powder-makes-chicken-crispy-only-if-the-skin-is-dry.md)
 - [Cacao Powder Gluten Free? Why Manufacturing Controls Matter More Than the Bean](ahzfsw.com/cacao-powder-gluten-free-why-manufacturing-controls-matter-more-than-the-bean.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
