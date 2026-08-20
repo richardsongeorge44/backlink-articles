@@ -12,5 +12,6 @@
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
 - [Iron Tablets and Insomnia: Why the Gut Is the Real Problem](ahzfsw.com/iron-tablets-and-insomnia-why-the-gut-is-the-real-problem.md)
 - [Meringue Powder Shelf Life: Why Moisture Matters More Than the Date Stamp](ahzfsw.com/meringue-powder-shelf-life-why-moisture-matters-more-than-the-date-stamp.md)
+- [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
 <!-- backlink-building:github-repository:end -->
