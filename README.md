@@ -9,6 +9,7 @@
 - [Cacao Powder Gluten Free? Why Manufacturing Controls Matter More Than the Bean](ahzfsw.com/cacao-powder-gluten-free-why-manufacturing-controls-matter-more-than-the-bean.md)
 - [Chile Powder vs. Chili Powder: Why the Difference Changes a Recipe](ahzfsw.com/chile-powder-vs-chili-powder-why-the-difference-changes-a-recipe.md)
 - [Espresso Powder in Baking: Why It Makes Chocolate Taste Richer](ahzfsw.com/espresso-powder-in-baking-why-it-makes-chocolate-taste-richer.md)
+- [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
