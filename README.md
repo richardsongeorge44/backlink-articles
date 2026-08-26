@@ -6,6 +6,7 @@
 ### ahzfsw.com
 - [Agar Agar Powder Room-Temperature Set: Why It Beats Gelatin in Heat](ahzfsw.com/agar-agar-powder-room-temperature-set-why-it-beats-gelatin-in-heat.md)
 - [Baking Powder Makes Chicken Crispy Only If the Skin Is Dry](ahzfsw.com/baking-powder-makes-chicken-crispy-only-if-the-skin-is-dry.md)
+- [Cacao Paste Method for Smooth Hot Chocolate With Cacao Powder](ahzfsw.com/cacao-paste-method-for-smooth-hot-chocolate-with-cacao-powder.md)
 - [Cacao Powder Gluten Free? Why Manufacturing Controls Matter More Than the Bean](ahzfsw.com/cacao-powder-gluten-free-why-manufacturing-controls-matter-more-than-the-bean.md)
 - [Chile Powder vs. Chili Powder: Why the Difference Changes a Recipe](ahzfsw.com/chile-powder-vs-chili-powder-why-the-difference-changes-a-recipe.md)
 - [Chili Powder Shelf Life: Why It Usually Gets Stale, Not Bad](ahzfsw.com/chili-powder-shelf-life-why-it-usually-gets-stale-not-bad.md)
