@@ -19,6 +19,7 @@
 - [Magnesium Tablets Expire: Why Potency Loss Is the Real Risk](ahzfsw.com/magnesium-tablets-expire-why-potency-loss-is-the-real-risk.md)
 - [Matcha Shelf Life: Why an Expiration Date Is a Quality Warning, Not a Safety Alarm](ahzfsw.com/matcha-shelf-life-why-an-expiration-date-is-a-quality-warning-not-a-safety-alarm.md)
 - [Meringue Powder Shelf Life: Why Moisture Matters More Than the Date Stamp](ahzfsw.com/meringue-powder-shelf-life-why-moisture-matters-more-than-the-date-stamp.md)
+- [Meringue Powder Works Because It Makes Royal Icing Predictable](ahzfsw.com/meringue-powder-works-because-it-makes-royal-icing-predictable.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
 - [Where to Buy Cacao Powder That’s Actually Cacao, Not Cocoa](ahzfsw.com/where-to-buy-cacao-powder-thats-actually-cacao-not-cocoa.md)
