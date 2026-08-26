@@ -17,6 +17,7 @@
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
 - [Iron Tablets and Insomnia: Why the Gut Is the Real Problem](ahzfsw.com/iron-tablets-and-insomnia-why-the-gut-is-the-real-problem.md)
 - [Magnesium Tablets Expire: Why Potency Loss Is the Real Risk](ahzfsw.com/magnesium-tablets-expire-why-potency-loss-is-the-real-risk.md)
+- [Matcha Shelf Life: Why an Expiration Date Is a Quality Warning, Not a Safety Alarm](ahzfsw.com/matcha-shelf-life-why-an-expiration-date-is-a-quality-warning-not-a-safety-alarm.md)
 - [Meringue Powder Shelf Life: Why Moisture Matters More Than the Date Stamp](ahzfsw.com/meringue-powder-shelf-life-why-moisture-matters-more-than-the-date-stamp.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
