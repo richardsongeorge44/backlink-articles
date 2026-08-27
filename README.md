@@ -23,5 +23,6 @@
 - [Meringue Powder Works Because It Makes Royal Icing Predictable](ahzfsw.com/meringue-powder-works-because-it-makes-royal-icing-predictable.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
+- [Supplement Manufacturer Selection: Why Product Format Matters Most](ahzfsw.com/supplement-manufacturer-selection-why-product-format-matters-most.md)
 - [Where to Buy Cacao Powder That’s Actually Cacao, Not Cocoa](ahzfsw.com/where-to-buy-cacao-powder-thats-actually-cacao-not-cocoa.md)
 <!-- backlink-building:github-repository:end -->
