@@ -23,6 +23,7 @@
 - [Meringue Powder Works Because It Makes Royal Icing Predictable](ahzfsw.com/meringue-powder-works-because-it-makes-royal-icing-predictable.md)
 - [Organic Probiotic Manufacturer: Why the Paper Trail Matters More Than the Culture](ahzfsw.com/organic-probiotic-manufacturer-why-the-paper-trail-matters-more-than-the-culture.md)
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
+- [Probiotic Strain Quality: Why Exact Strain Identity Matters More Than the Species Name](ahzfsw.com/probiotic-strain-quality-why-exact-strain-identity-matters-more-than-the-species-name.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
 - [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
