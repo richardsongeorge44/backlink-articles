@@ -25,6 +25,7 @@
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
+- [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
 - [Supplement Manufacturer Selection: Why Product Format Matters Most](ahzfsw.com/supplement-manufacturer-selection-why-product-format-matters-most.md)
 - [Where to Buy Cacao Powder That’s Actually Cacao, Not Cocoa](ahzfsw.com/where-to-buy-cacao-powder-thats-actually-cacao-not-cocoa.md)
