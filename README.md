@@ -27,6 +27,7 @@
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
 - [Probiotic Strain Quality: Why Exact Strain Identity Matters More Than the Species Name](ahzfsw.com/probiotic-strain-quality-why-exact-strain-identity-matters-more-than-the-species-name.md)
 - [Protein Powder Constipation: Why the Formula, Not the Protein, Is Usually to Blame](ahzfsw.com/protein-powder-constipation-why-the-formula-not-the-protein-is-usually-to-blame.md)
+- [Protein Powder Manufacturers: The Testing Documents That Reveal Real Risk](ahzfsw.com/protein-powder-manufacturers-the-testing-documents-that-reveal-real-risk.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
 - [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
 - [Soft Gelatin Capsules Suppliers: Why Process Control Beats Price](ahzfsw.com/soft-gelatin-capsules-suppliers-why-process-control-beats-price.md)
