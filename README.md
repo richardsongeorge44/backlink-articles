@@ -8,6 +8,7 @@
 - [Baking Powder Makes Chicken Crispy Only If the Skin Is Dry](ahzfsw.com/baking-powder-makes-chicken-crispy-only-if-the-skin-is-dry.md)
 - [Cacao Paste Method for Smooth Hot Chocolate With Cacao Powder](ahzfsw.com/cacao-paste-method-for-smooth-hot-chocolate-with-cacao-powder.md)
 - [Cacao Powder Gluten Free? Why Manufacturing Controls Matter More Than the Bean](ahzfsw.com/cacao-powder-gluten-free-why-manufacturing-controls-matter-more-than-the-bean.md)
+- [Capsule Manufacturing Depends on Humidity Control More Than Most Teams Realize](ahzfsw.com/capsule-manufacturing-depends-on-humidity-control-more-than-most-teams-realize.md)
 - [Chile Powder vs. Chili Powder: Why the Difference Changes a Recipe](ahzfsw.com/chile-powder-vs-chili-powder-why-the-difference-changes-a-recipe.md)
 - [Chili Powder Shelf Life: Why It Usually Gets Stale, Not Bad](ahzfsw.com/chili-powder-shelf-life-why-it-usually-gets-stale-not-bad.md)
 - [Cocoa Powder Leavening: Why the Wrong Type Ruins Chocolate Baking](ahzfsw.com/cocoa-powder-leavening-why-the-wrong-type-ruins-chocolate-baking.md)
