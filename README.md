@@ -11,6 +11,7 @@
 - [Chile Powder vs. Chili Powder: Why the Difference Changes a Recipe](ahzfsw.com/chile-powder-vs-chili-powder-why-the-difference-changes-a-recipe.md)
 - [Chili Powder Shelf Life: Why It Usually Gets Stale, Not Bad](ahzfsw.com/chili-powder-shelf-life-why-it-usually-gets-stale-not-bad.md)
 - [Cocoa Powder Leavening: Why the Wrong Type Ruins Chocolate Baking](ahzfsw.com/cocoa-powder-leavening-why-the-wrong-type-ruins-chocolate-baking.md)
+- [Collagen Tripeptide Supplement: Why Smaller Peptides Reach Skin Deeper](ahzfsw.com/collagen-tripeptide-supplement-why-smaller-peptides-reach-skin-deeper.md)
 - [Espresso Powder in Baking: Why It Makes Chocolate Taste Richer](ahzfsw.com/espresso-powder-in-baking-why-it-makes-chocolate-taste-richer.md)
 - [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
