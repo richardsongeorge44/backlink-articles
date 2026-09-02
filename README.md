@@ -42,4 +42,5 @@
 - [Synthetic vs Natural Vitamins: Why the Molecule Matters More Than the Label](ahzfsw.com/synthetic-vs-natural-vitamins-why-the-molecule-matters-more-than-the-label.md)
 - [Type 2 Collagen Supplements: Why Form Matters More Than Milligrams](ahzfsw.com/type-2-collagen-supplements-why-form-matters-more-than-milligrams.md)
 - [Where to Buy Cacao Powder That’s Actually Cacao, Not Cocoa](ahzfsw.com/where-to-buy-cacao-powder-thats-actually-cacao-not-cocoa.md)
+- [Why Multi-Collagen Supplements Leave Out Type IV Collagen](ahzfsw.com/why-multi-collagen-supplements-leave-out-type-iv-collagen.md)
 <!-- backlink-building:github-repository:end -->
