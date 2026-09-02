@@ -34,6 +34,7 @@
 - [Protein Powder Manufacturers: The Testing Documents That Reveal Real Risk](ahzfsw.com/protein-powder-manufacturers-the-testing-documents-that-reveal-real-risk.md)
 - [Protein Powder Pancakes: Why a Flour Swap Turns Dry](ahzfsw.com/protein-powder-pancakes-why-a-flour-swap-turns-dry.md)
 - [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
+- [Small Batch Supplement MOQ: Why the Real Floor Is Higher Than It Looks](ahzfsw.com/small-batch-supplement-moq-why-the-real-floor-is-higher-than-it-looks.md)
 - [Soft Gelatin Capsules Suppliers: Why Process Control Beats Price](ahzfsw.com/soft-gelatin-capsules-suppliers-why-process-control-beats-price.md)
 - [Supplement Bioavailability in Custom Vitamin Formulation: Why Form Beats Dose](ahzfsw.com/supplement-bioavailability-in-custom-vitamin-formulation-why-form-beats-dose.md)
 - [Supplement Certificate of Analysis: The Report That Passes FDA Scrutiny](ahzfsw.com/supplement-certificate-of-analysis-the-report-that-passes-fda-scrutiny.md)
