@@ -36,6 +36,7 @@
 - [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
 - [Soft Gelatin Capsules Suppliers: Why Process Control Beats Price](ahzfsw.com/soft-gelatin-capsules-suppliers-why-process-control-beats-price.md)
 - [Supplement Bioavailability in Custom Vitamin Formulation: Why Form Beats Dose](ahzfsw.com/supplement-bioavailability-in-custom-vitamin-formulation-why-form-beats-dose.md)
+- [Supplement Certificate of Analysis: The Report That Passes FDA Scrutiny](ahzfsw.com/supplement-certificate-of-analysis-the-report-that-passes-fda-scrutiny.md)
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
 - [Supplement Manufacturer Selection: Why Product Format Matters Most](ahzfsw.com/supplement-manufacturer-selection-why-product-format-matters-most.md)
 - [Synthetic vs Natural Vitamins: Why the Molecule Matters More Than the Label](ahzfsw.com/synthetic-vs-natural-vitamins-why-the-molecule-matters-more-than-the-label.md)
