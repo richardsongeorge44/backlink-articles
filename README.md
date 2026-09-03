@@ -36,6 +36,7 @@
 - [Raw Ingredient Qualification: The Real Quality Gate in Vitamin Supplement Manufacturing](ahzfsw.com/raw-ingredient-qualification-the-real-quality-gate-in-vitamin-supplement-manufacturing.md)
 - [Small Batch Supplement MOQ: Why the Real Floor Is Higher Than It Looks](ahzfsw.com/small-batch-supplement-moq-why-the-real-floor-is-higher-than-it-looks.md)
 - [Soft Gelatin Capsules Suppliers: Why Process Control Beats Price](ahzfsw.com/soft-gelatin-capsules-suppliers-why-process-control-beats-price.md)
+- [Softgel Shell Material Choice: Cost, Stability, and Market Access](ahzfsw.com/softgel-shell-material-choice-cost-stability-and-market-access.md)
 - [Supplement Bioavailability in Custom Vitamin Formulation: Why Form Beats Dose](ahzfsw.com/supplement-bioavailability-in-custom-vitamin-formulation-why-form-beats-dose.md)
 - [Supplement Certificate of Analysis: The Report That Passes FDA Scrutiny](ahzfsw.com/supplement-certificate-of-analysis-the-report-that-passes-fda-scrutiny.md)
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
