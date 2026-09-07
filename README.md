@@ -13,6 +13,7 @@
 - [Chili Powder Shelf Life: Why It Usually Gets Stale, Not Bad](ahzfsw.com/chili-powder-shelf-life-why-it-usually-gets-stale-not-bad.md)
 - [Cocoa Powder Leavening: Why the Wrong Type Ruins Chocolate Baking](ahzfsw.com/cocoa-powder-leavening-why-the-wrong-type-ruins-chocolate-baking.md)
 - [Collagen Manufacturers: Why Process Quality Matters More Than Source Material](ahzfsw.com/collagen-manufacturers-why-process-quality-matters-more-than-source-material.md)
+- [Collagen Molecular Weight Distribution Is the Real Quality Test](ahzfsw.com/collagen-molecular-weight-distribution-is-the-real-quality-test.md)
 - [Collagen Tripeptide Supplement: Why Smaller Peptides Reach Skin Deeper](ahzfsw.com/collagen-tripeptide-supplement-why-smaller-peptides-reach-skin-deeper.md)
 - [Espresso Powder in Baking: Why It Makes Chocolate Taste Richer](ahzfsw.com/espresso-powder-in-baking-why-it-makes-chocolate-taste-richer.md)
 - [Fiber Supplements Manufacturer Selection: Why Manufacturability Beats the Lowest Quote](ahzfsw.com/fiber-supplements-manufacturer-selection-why-manufacturability-beats-the-lowest-quote.md)
