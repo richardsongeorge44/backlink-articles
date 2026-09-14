@@ -22,6 +22,7 @@
 - [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
+- [GMP Audit Failure: What Documentation Gaps Reveal About Supplement Quality](ahzfsw.com/gmp-audit-failure-what-documentation-gaps-reveal-about-supplement-quality.md)
 - [GMP Certified Supplements: How to Spot Fake Claims in Seconds](ahzfsw.com/gmp-certified-supplements-how-to-spot-fake-claims-in-seconds.md)
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
 - [How to Audit a Nutraceutical Contract Manufacturer Before Signing](ahzfsw.com/how-to-audit-a-nutraceutical-contract-manufacturer-before-signing.md)
