@@ -52,6 +52,7 @@
 - [Small Batch Supplement MOQ: Why the Real Floor Is Higher Than It Looks](ahzfsw.com/small-batch-supplement-moq-why-the-real-floor-is-higher-than-it-looks.md)
 - [Soft Gelatin Capsules Suppliers: Why Process Control Beats Price](ahzfsw.com/soft-gelatin-capsules-suppliers-why-process-control-beats-price.md)
 - [Softgel Bioavailability: Why Oil-Based Ingredients Beat Tablets](ahzfsw.com/softgel-bioavailability-why-oil-based-ingredients-beat-tablets.md)
+- [Softgel Manufacturer Selection Starts With Formula Compatibility](ahzfsw.com/softgel-manufacturer-selection-starts-with-formula-compatibility.md)
 - [Softgel Shell Material Choice: Cost, Stability, and Market Access](ahzfsw.com/softgel-shell-material-choice-cost-stability-and-market-access.md)
 - [Softgel Stability Starts at the Shell-Fill Interface](ahzfsw.com/softgel-stability-starts-at-the-shell-fill-interface.md)
 - [Supplement Bioavailability in Custom Vitamin Formulation: Why Form Beats Dose](ahzfsw.com/supplement-bioavailability-in-custom-vitamin-formulation-why-form-beats-dose.md)
