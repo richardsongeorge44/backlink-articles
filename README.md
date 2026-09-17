@@ -44,6 +44,7 @@
 - [Peptide Supplement Safety Starts With Evidence, Not Hype](ahzfsw.com/peptide-supplement-safety-starts-with-evidence-not-hype.md)
 - [Private Label Supplement Costs: Why the Cheapest Quote Usually Costs More](ahzfsw.com/private-label-supplement-costs-why-the-cheapest-quote-usually-costs-more.md)
 - [Probiotic Potency at Expiration: The CFU Promise That Counts](ahzfsw.com/probiotic-potency-at-expiration-the-cfu-promise-that-counts.md)
+- [Probiotic Powder Viability Depends on Water Activity](ahzfsw.com/probiotic-powder-viability-depends-on-water-activity.md)
 - [Probiotic Stability Claims: Why CFU Through Expiration Matters Most](ahzfsw.com/probiotic-stability-claims-why-cfu-through-expiration-matters-most.md)
 - [Probiotic Stability: Why the Whole System Determines Shelf Life](ahzfsw.com/probiotic-stability-why-the-whole-system-determines-shelf-life.md)
 - [Probiotic Strain Quality: Why Exact Strain Identity Matters More Than the Species Name](ahzfsw.com/probiotic-strain-quality-why-exact-strain-identity-matters-more-than-the-species-name.md)
