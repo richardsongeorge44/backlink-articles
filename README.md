@@ -22,6 +22,7 @@
 - [Custom Powder Manufacturers: Why Batch-Level Proof Matters Most](ahzfsw.com/custom-powder-manufacturers-why-batch-level-proof-matters-most.md)
 - [Espresso Powder in Baking: Why It Makes Chocolate Taste Richer](ahzfsw.com/espresso-powder-in-baking-why-it-makes-chocolate-taste-richer.md)
 - [Fiber Supplements Manufacturer Selection: Why Manufacturability Beats the Lowest Quote](ahzfsw.com/fiber-supplements-manufacturer-selection-why-manufacturability-beats-the-lowest-quote.md)
+- [Fish Oil Oxidation Control: The Real Test of a Manufacturer](ahzfsw.com/fish-oil-oxidation-control-the-real-test-of-a-manufacturer.md)
 - [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
