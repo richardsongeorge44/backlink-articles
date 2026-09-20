@@ -10,6 +10,7 @@
 - [Cacao Powder Gluten Free? Why Manufacturing Controls Matter More Than the Bean](ahzfsw.com/cacao-powder-gluten-free-why-manufacturing-controls-matter-more-than-the-bean.md)
 - [Capsule Formulation Development: The Gatekeeper of Outsourcing Success](ahzfsw.com/capsule-formulation-development-the-gatekeeper-of-outsourcing-success.md)
 - [Capsule Manufacturing Depends on Humidity Control More Than Most Teams Realize](ahzfsw.com/capsule-manufacturing-depends-on-humidity-control-more-than-most-teams-realize.md)
+- [Capsule Size Strategy: The Hidden Lever in Supplement Launches](ahzfsw.com/capsule-size-strategy-the-hidden-lever-in-supplement-launches.md)
 - [CFU Through Expiration: The Probiotic Potency Claim That Actually Matters](ahzfsw.com/cfu-through-expiration-the-probiotic-potency-claim-that-actually-matters.md)
 - [Chile Powder vs. Chili Powder: Why the Difference Changes a Recipe](ahzfsw.com/chile-powder-vs-chili-powder-why-the-difference-changes-a-recipe.md)
 - [Chili Powder Shelf Life: Why It Usually Gets Stale, Not Bad](ahzfsw.com/chili-powder-shelf-life-why-it-usually-gets-stale-not-bad.md)
