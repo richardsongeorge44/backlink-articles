@@ -47,6 +47,7 @@
 - [Organic Probiotic Manufacturer: Why the Paper Trail Matters More Than the Culture](ahzfsw.com/organic-probiotic-manufacturer-why-the-paper-trail-matters-more-than-the-culture.md)
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
 - [Peptide Supplement Safety Starts With Evidence, Not Hype](ahzfsw.com/peptide-supplement-safety-starts-with-evidence-not-hype.md)
+- [Pre-Workout Manufacturer Vetting Starts With Batch Evidence](ahzfsw.com/pre-workout-manufacturer-vetting-starts-with-batch-evidence.md)
 - [Private Label Supplement Costs: Why the Cheapest Quote Usually Costs More](ahzfsw.com/private-label-supplement-costs-why-the-cheapest-quote-usually-costs-more.md)
 - [Probiotic Potency at Expiration: The CFU Promise That Counts](ahzfsw.com/probiotic-potency-at-expiration-the-cfu-promise-that-counts.md)
 - [Probiotic Powder Viability Depends on Water Activity](ahzfsw.com/probiotic-powder-viability-depends-on-water-activity.md)
