@@ -25,6 +25,7 @@
 - [Fish Oil Oxidation Control: The Real Test of a Manufacturer](ahzfsw.com/fish-oil-oxidation-control-the-real-test-of-a-manufacturer.md)
 - [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
+- [Gelatin Capsule Color Starts With the Gelatin Source](ahzfsw.com/gelatin-capsule-color-starts-with-the-gelatin-source.md)
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
 - [GMP Audit Failure: What Documentation Gaps Reveal About Supplement Quality](ahzfsw.com/gmp-audit-failure-what-documentation-gaps-reveal-about-supplement-quality.md)
 - [GMP Certified Supplements: How to Spot Fake Claims in Seconds](ahzfsw.com/gmp-certified-supplements-how-to-spot-fake-claims-in-seconds.md)
