@@ -31,6 +31,7 @@
 - [Glucose Tablets and the 15-15 Rule: Why Measured Dosing Works](ahzfsw.com/glucose-tablets-and-the-15-15-rule-why-measured-dosing-works.md)
 - [GMP Audit Failure: What Documentation Gaps Reveal About Supplement Quality](ahzfsw.com/gmp-audit-failure-what-documentation-gaps-reveal-about-supplement-quality.md)
 - [GMP Certified Supplements: How to Spot Fake Claims in Seconds](ahzfsw.com/gmp-certified-supplements-how-to-spot-fake-claims-in-seconds.md)
+- [Gummy Vitamin Dosage: The Truth Personalization Often Hides](ahzfsw.com/gummy-vitamin-dosage-the-truth-personalization-often-hides.md)
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
 - [How to Audit a Nutraceutical Contract Manufacturer Before Signing](ahzfsw.com/how-to-audit-a-nutraceutical-contract-manufacturer-before-signing.md)
 - [Iron Tablets and Insomnia: Why the Gut Is the Real Problem](ahzfsw.com/iron-tablets-and-insomnia-why-the-gut-is-the-real-problem.md)
