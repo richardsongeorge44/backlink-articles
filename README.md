@@ -45,6 +45,7 @@
 - [Meringue Powder Works Because It Makes Royal Icing Predictable](ahzfsw.com/meringue-powder-works-because-it-makes-royal-icing-predictable.md)
 - [Non-GMO Probiotics Supplier: The Hidden Inputs That Decide Compliance](ahzfsw.com/non-gmo-probiotics-supplier-the-hidden-inputs-that-decide-compliance.md)
 - [Non-GMO Vitamin Fillers: The Label Detail That Changes Everything](ahzfsw.com/non-gmo-vitamin-fillers-the-label-detail-that-changes-everything.md)
+- [NSF Certification Scope: The Supplement Badge Detail Buyers Miss](ahzfsw.com/nsf-certification-scope-the-supplement-badge-detail-buyers-miss.md)
 - [NSF Certified Supplements: Why the Logo Alone Doesn't Tell You What Was Tested](ahzfsw.com/nsf-certified-supplements-why-the-logo-alone-doesn-t-tell-you-what-was-tested.md)
 - [Nutraceutical Manufacturer Fit: Why the Right Partner Beats Price](ahzfsw.com/nutraceutical-manufacturer-fit-why-the-right-partner-beats-price.md)
 - [Organic Probiotic Manufacturer: Why the Paper Trail Matters More Than the Culture](ahzfsw.com/organic-probiotic-manufacturer-why-the-paper-trail-matters-more-than-the-culture.md)
