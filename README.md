@@ -29,6 +29,7 @@
 - [Espresso Powder in Baking: Why It Makes Chocolate Taste Richer](ahzfsw.com/espresso-powder-in-baking-why-it-makes-chocolate-taste-richer.md)
 - [Fiber Supplements Manufacturer Selection: Why Manufacturability Beats the Lowest Quote](ahzfsw.com/fiber-supplements-manufacturer-selection-why-manufacturability-beats-the-lowest-quote.md)
 - [Fish Oil Oxidation Control: The Real Test of a Manufacturer](ahzfsw.com/fish-oil-oxidation-control-the-real-test-of-a-manufacturer.md)
+- [Formula Ownership in Capsule Manufacturing: The Decision Buyers Underestimate](ahzfsw.com/formula-ownership-in-capsule-manufacturing-the-decision-buyers-underestimate.md)
 - [Garlic Powder Drying Temperature: Why Low Heat Beats Speed Every Time](ahzfsw.com/garlic-powder-drying-temperature-why-low-heat-beats-speed-every-time.md)
 - [Garlic Powder Shelf Life: Expired Doesn't Mean Spoiled](ahzfsw.com/garlic-powder-shelf-life-expired-doesn-t-mean-spoiled.md)
 - [Gelatin Capsule Color Starts With the Gelatin Source](ahzfsw.com/gelatin-capsule-color-starts-with-the-gelatin-source.md)
