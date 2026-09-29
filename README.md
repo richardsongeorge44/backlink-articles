@@ -85,6 +85,7 @@
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
 - [Supplement Format Choice: The Decision That Makes or Breaks a Formula](ahzfsw.com/supplement-format-choice-the-decision-that-makes-or-breaks-a-formula.md)
 - [Supplement Manufacturer Selection: Why Product Format Matters Most](ahzfsw.com/supplement-manufacturer-selection-why-product-format-matters-most.md)
+- [Supplement Manufacturing Cost: Why Total Landed Cost Beats the Lowest Quote](ahzfsw.com/supplement-manufacturing-cost-why-total-landed-cost-beats-the-lowest-quote.md)
 - [Supplier Qualification Is the Real Cost Driver in Supplement Production](ahzfsw.com/supplier-qualification-is-the-real-cost-driver-in-supplement-production.md)
 - [Synthetic vs Natural Vitamins: Why the Molecule Matters More Than the Label](ahzfsw.com/synthetic-vs-natural-vitamins-why-the-molecule-matters-more-than-the-label.md)
 - [Tablet Supplement Manufacturer Costs: Why the Lowest Quote Usually Costs More](ahzfsw.com/tablet-supplement-manufacturer-costs-why-the-lowest-quote-usually-costs-more.md)
