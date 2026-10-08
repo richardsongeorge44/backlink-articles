@@ -85,6 +85,7 @@
 - [Supplement Compliance Is the Distributor’s Real Profit Moat](ahzfsw.com/supplement-compliance-is-the-distributors-real-profit-moat.md)
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
 - [Supplement Format Choice: The Decision That Makes or Breaks a Formula](ahzfsw.com/supplement-format-choice-the-decision-that-makes-or-breaks-a-formula.md)
+- [Supplement Manufacturer Selection Starts With Category Fit](ahzfsw.com/supplement-manufacturer-selection-starts-with-category-fit.md)
 - [Supplement Manufacturer Selection: Why Product Format Matters Most](ahzfsw.com/supplement-manufacturer-selection-why-product-format-matters-most.md)
 - [Supplement Manufacturing Cost: Why Total Landed Cost Beats the Lowest Quote](ahzfsw.com/supplement-manufacturing-cost-why-total-landed-cost-beats-the-lowest-quote.md)
 - [Supplier Qualification Is the Real Cost Driver in Supplement Production](ahzfsw.com/supplier-qualification-is-the-real-cost-driver-in-supplement-production.md)
