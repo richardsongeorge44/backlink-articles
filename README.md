@@ -21,6 +21,7 @@
 - [Collagen Molecular Weight Distribution Is the Real Quality Test](ahzfsw.com/collagen-molecular-weight-distribution-is-the-real-quality-test.md)
 - [Collagen Peptide Powder Manufacturers: Why Molecular Weight Distribution Matters](ahzfsw.com/collagen-peptide-powder-manufacturers-why-molecular-weight-distribution-matters.md)
 - [Collagen Supplement Form Matters More Than the Type on the Label](ahzfsw.com/collagen-supplement-form-matters-more-than-the-type-on-the-label.md)
+- [Collagen Taste: Why Processing Matters More Than the Source](ahzfsw.com/collagen-taste-why-processing-matters-more-than-the-source.md)
 - [Collagen Testing Should Start With the Supplement, Not the Blood Test](ahzfsw.com/collagen-testing-should-start-with-the-supplement-not-the-blood-test.md)
 - [Collagen Tripeptide Supplement: Why Smaller Peptides Reach Skin Deeper](ahzfsw.com/collagen-tripeptide-supplement-why-smaller-peptides-reach-skin-deeper.md)
 - [Contract Manufacturing Control: Outsource Production Without Losing Authority](ahzfsw.com/contract-manufacturing-control-outsource-production-without-losing-authority.md)
