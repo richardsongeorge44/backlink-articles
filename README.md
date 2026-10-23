@@ -41,6 +41,7 @@
 - [Gummy Vitamin Dosage: The Truth Personalization Often Hides](ahzfsw.com/gummy-vitamin-dosage-the-truth-personalization-often-hides.md)
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
 - [How to Audit a Nutraceutical Contract Manufacturer Before Signing](ahzfsw.com/how-to-audit-a-nutraceutical-contract-manufacturer-before-signing.md)
+- [How to Vet a Weight Loss Supplement Manufacturer Beyond Price](ahzfsw.com/how-to-vet-a-weight-loss-supplement-manufacturer-beyond-price.md)
 - [Immune Supplement Stability: The Hidden Test of Product Quality](ahzfsw.com/immune-supplement-stability-the-hidden-test-of-product-quality.md)
 - [Iron Tablets and Insomnia: Why the Gut Is the Real Problem](ahzfsw.com/iron-tablets-and-insomnia-why-the-gut-is-the-real-problem.md)
 - [Kosher Supplement Manufacturing: Design for Pareve First](ahzfsw.com/kosher-supplement-manufacturing-design-for-pareve-first.md)
