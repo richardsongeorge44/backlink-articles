@@ -61,6 +61,7 @@
 - [NSF Certification Scope: The Supplement Badge Detail Buyers Miss](ahzfsw.com/nsf-certification-scope-the-supplement-badge-detail-buyers-miss.md)
 - [NSF Certified Supplements: Why the Logo Alone Doesn't Tell You What Was Tested](ahzfsw.com/nsf-certified-supplements-why-the-logo-alone-doesn-t-tell-you-what-was-tested.md)
 - [Nutraceutical Manufacturer Fit: Why the Right Partner Beats Price](ahzfsw.com/nutraceutical-manufacturer-fit-why-the-right-partner-beats-price.md)
+- [Nutritional Ingredient Supplier Qualification: Evidence Over Price](ahzfsw.com/nutritional-ingredient-supplier-qualification-evidence-over-price.md)
 - [Organic Probiotic Manufacturer: Why the Paper Trail Matters More Than the Culture](ahzfsw.com/organic-probiotic-manufacturer-why-the-paper-trail-matters-more-than-the-culture.md)
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
 - [Peptide Supplement Safety Starts With Evidence, Not Hype](ahzfsw.com/peptide-supplement-safety-starts-with-evidence-not-hype.md)
