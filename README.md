@@ -66,6 +66,7 @@
 - [Part 111 Specifications: The Decision That Drives Dietary Supplement Compliance](ahzfsw.com/part-111-specifications-the-decision-that-drives-dietary-supplement-compliance.md)
 - [Peptide Supplement Safety Starts With Evidence, Not Hype](ahzfsw.com/peptide-supplement-safety-starts-with-evidence-not-hype.md)
 - [Pre-Workout Manufacturer Vetting Starts With Batch Evidence](ahzfsw.com/pre-workout-manufacturer-vetting-starts-with-batch-evidence.md)
+- [Private Label Nutrition: Validate Demand Before You Scale](ahzfsw.com/private-label-nutrition-validate-demand-before-you-scale.md)
 - [Private Label Supplement Costs: Why the Cheapest Quote Usually Costs More](ahzfsw.com/private-label-supplement-costs-why-the-cheapest-quote-usually-costs-more.md)
 - [Probiotic Potency at Expiration: The CFU Promise That Counts](ahzfsw.com/probiotic-potency-at-expiration-the-cfu-promise-that-counts.md)
 - [Probiotic Powder Viability Depends on Water Activity](ahzfsw.com/probiotic-powder-viability-depends-on-water-activity.md)
