@@ -90,6 +90,7 @@
 - [Softgel Shell Material Choice: Cost, Stability, and Market Access](ahzfsw.com/softgel-shell-material-choice-cost-stability-and-market-access.md)
 - [Softgel Stability Starts at the Shell-Fill Interface](ahzfsw.com/softgel-stability-starts-at-the-shell-fill-interface.md)
 - [Supplement Bioavailability in Custom Vitamin Formulation: Why Form Beats Dose](ahzfsw.com/supplement-bioavailability-in-custom-vitamin-formulation-why-form-beats-dose.md)
+- [Supplement Brand Compliance: Outsourcing Isn't Accountability](ahzfsw.com/supplement-brand-compliance-outsourcing-isn-t-accountability.md)
 - [Supplement Certificate of Analysis: The Report That Passes FDA Scrutiny](ahzfsw.com/supplement-certificate-of-analysis-the-report-that-passes-fda-scrutiny.md)
 - [Supplement Compliance Is the Distributor’s Real Profit Moat](ahzfsw.com/supplement-compliance-is-the-distributors-real-profit-moat.md)
 - [Supplement Dosage Form Selection: The Decision That Shapes the Whole Product](ahzfsw.com/supplement-dosage-form-selection-the-decision-that-shapes-the-whole-product.md)
