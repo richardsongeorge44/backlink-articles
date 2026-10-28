@@ -42,6 +42,7 @@
 - [Gummy Contract Manufacturer Selection: Compare Risk, Not Just Price](ahzfsw.com/gummy-contract-manufacturer-selection-compare-risk-not-just-price.md)
 - [Gummy Vitamin Dosage: The Truth Personalization Often Hides](ahzfsw.com/gummy-vitamin-dosage-the-truth-personalization-often-hides.md)
 - [Health Product Compliance: Build It Into Your Growth System](ahzfsw.com/health-product-compliance-build-it-into-your-growth-system.md)
+- [Herbal Supplier Vetting: Why a COA Is Only the Beginning](ahzfsw.com/herbal-supplier-vetting-why-a-coa-is-only-the-beginning.md)
 - [Homemade Matcha Powder: Why DIY Stops Being Real Matcha](ahzfsw.com/homemade-matcha-powder-why-diy-stops-being-real-matcha.md)
 - [How to Audit a Nutraceutical Contract Manufacturer Before Signing](ahzfsw.com/how-to-audit-a-nutraceutical-contract-manufacturer-before-signing.md)
 - [How to Vet a Weight Loss Supplement Manufacturer Beyond Price](ahzfsw.com/how-to-vet-a-weight-loss-supplement-manufacturer-beyond-price.md)
